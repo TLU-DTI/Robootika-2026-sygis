@@ -1,4 +1,4 @@
-# Robootika kursus 2025 aasta sügissemestril
+# Robootika kursus 2026 aasta sügissemestril
 
 
 ## Õpieesmärgid
